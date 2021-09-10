@@ -1,1 +1,1 @@
-# Seans_Repositroy
+# Seans_Repositroy status
